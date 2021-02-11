@@ -14,23 +14,13 @@
 
    它需要攀爬者使用安全带等保护器保护，并且缓慢下降的，安全性很高的攀岩项目；
 
-   它类似于这样
-
    
-
-   <img src="NJWzMwpSr4s4wTMKPKcne_Hv3_2GVioRLa4KqI4ML7QHo8itsBkcmVncTI8kIYxjjoJrvItByyS4HHaWdXyO_I7F0UeCRQYMHlogzbt7GHgNNiIYVnHvzugZCuBITtvjski7YaLlHpkrQUr5euoQrg.jpg" alt="NJWzMwpSr4s4wTMKPKcne_Hv3_2GVioRLa4KqI4ML7QHo8itsBkcmVncTI8kIYxjjoJrvItByyS4HHaWdXyO_I7F0UeCRQYMHlogzbt7GHgNNiIYVnHvzugZCuBITtvjski7YaLlHpkrQUr5euoQrg" style="zoom:50%;" />![9GAazucpCH1g0mNiGPavoZBS8ixNLb1yR88jG8Lk_wQiwrBb5QDLn8whC_rzgH4hjoJrvItByyS4HHaWdXyO_I7F0UeCRQYMHlogzbt7GHgNNiIYVnHvzugZCuBITtvjski7YaLlHpkrQUr5euoQrg](/Users/zhangjiong/Desktop/rockclimbing/9GAazucpCH1g0mNiGPavoZBS8ixNLb1yR88jG8Lk_wQiwrBb5QDLn8whC_rzgH4hjoJrvItByyS4HHaWdXyO_I7F0UeCRQYMHlogzbt7GHgNNiIYVnHvzugZCuBITtvjski7YaLlHpkrQUr5euoQrg.jpg)
-
-   <img src="/Users/zhangjiong/Desktop/rockclimbing/9GAazucpCH1g0mNiGPavoZBS8ixNLb1yR88jG8Lk_wQiwrBb5QDLn8whC_rzgH4hjoJrvItByyS4HHaWdXyO_I7F0UeCRQYMHlogzbt7GHgNNiIYVnHvzugZCuBITtvjski7YaLlHpkrQUr5euoQrg.jpg" alt="9GAazucpCH1g0mNiGPavoZBS8ixNLb1yR88jG8Lk_wQiwrBb5QDLn8whC_rzgH4hjoJrvItByyS4HHaWdXyO_I7F0UeCRQYMHlogzbt7GHgNNiIYVnHvzugZCuBITtvjski7YaLlHpkrQUr5euoQrg" style="zoom:50%;" />
 
 3. 抱石
 
    是一种高度限制在5米以下，攀岩者无保护措施的攀岩项目，需要攀岩者进行简单的安全注意事项的学习，也是攀岩中受伤率相对最高的；
 
-   它类似于这样
-
-   <img src="/Users/zhangjiong/Desktop/rockclimbing/WX20210212-012730.png" alt="WX20210212-012730" style="zoom: 33%;" />
-
-   <img src="/Users/zhangjiong/Desktop/rockclimbing/979d886ff89d1b6bec49aeff8aa022da_1_b8eb8f1aa8e3ef7a_1_P7jwbaWMYA+EHPWdenDM7CDh9GCGpOjXGDnLq7wRwmiCpbnfMMQrKzpG1qgs8iE7Sf93cEa7pTHcfl7vF_z1NgsIkBjwQ33oFP+WdJfDhc3IENMmSGDWjhLjiG3FmZHla9fRigR_lu0VtR7ztWNvcQ==.jpeg" alt="979d886ff89d1b6bec49aeff8aa022da_1_b8eb8f1aa8e3ef7a_1_P7jwbaWMYA+EHPWdenDM7CDh9GCGpOjXGDnLq7wRwmiCpbnfMMQrKzpG1qgs8iE7Sf93cEa7pTHcfl7vF_z1NgsIkBjwQ33oFP+WdJfDhc3IENMmSGDWjhLjiG3FmZHla9fRigR_lu0VtR7ztWNvcQ==" style="zoom:50%;" />
+   
 
 #### 攀岩的必要准备
 
